@@ -1,6 +1,6 @@
 # Marketing-Insights-For-food-Berverage-Industry
 
-In this presentaion i will discuss about 
+
 aim , objective , primary ,secondary insights , recomendation & startergy 
 
 
